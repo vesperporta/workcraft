@@ -8,3 +8,6 @@ Economics are essential for people to feel included into a system while defining
 Communications defines a state of currency creation from task artistry for an individual by producing emotionally rich representations of a task into a worthy medium to reproduce a format of currency according to music math mosaics. IET forming real currency for a person to want to rally behind as a self made currency of high tasking profit from effort expected of a state of economy demanding higher conceptual formats of currency to validate their lives as interchange of work.
 
 Exchange rates between currencies are set to thought conceptual order of breaking from a task in success for a department or contrary as learning opportunities expanded separately.
+
+## IET Management
+Management of tasks as a horoscope of itself acting in an environment of horoscopes, official meetings and formalities are defined to handle process of tasks through departments and businesses.
