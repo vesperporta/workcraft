@@ -14,3 +14,6 @@ Management of tasks as a horoscope of itself acting in an environment of horosco
 
 ## Light Accelerated Event System
 Design for an event management system in reflection from native bubbling of events through an application to observe by screens of TV formated pixels describing a total and partial operation of an application. Limits of each screen size as busy action of object population from constant output as TVs increases need for additional TVs and identity of property to increase population of a society interacting as programmes with action.
+
+### Failure Tasking
+Measurement and assignment of tasks associated to real values of a team as the teams' strengths themselves. Mathematical formula of time as fantasy defines reality for a task and mentality surrounding it. 
