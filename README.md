@@ -17,3 +17,6 @@ Design for an event management system in reflection from native bubbling of even
 
 ### Failure Tasking
 Measurement and assignment of tasks associated to real values of a team as the teams' strengths themselves. Mathematical formula of time as fantasy defines reality for a task and mentality surrounding it. 
+
+### Seasonal Phases
+Application of task programming integrated as a team to programme themselves defines a team capable to advance through appropriate internal management for luxury lifestyles.
