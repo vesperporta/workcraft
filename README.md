@@ -20,3 +20,9 @@ Measurement and assignment of tasks associated to real values of a team as the t
 
 ### Seasonal Phases
 Application of task programming integrated as a team to programme themselves defines a team capable to advance through appropriate internal management for luxury lifestyles.
+
+### Hexachain Economy
+Every business has potential to create its own wealth in providing learning options for others as a direct currency encrypted by a companies identity to use internal and externally.
+
+## Job Creation
+Connectivity Developer, as a job to model tasks performed by a company to detail actions of rendering a failure into profitable mechanics of a working machine modelling as real live actors to be recorded portraying economy as idols for a business to present their efforts and currency.
