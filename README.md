@@ -24,10 +24,10 @@ Application of task programming integrated as a team to programme themselves def
 ### Hexachain Economy
 Every business has potential to create its own wealth in providing learning options for others as a direct currency encrypted by a companies identity to use internal and externally.
 
-Assured currency by industry action.
-Self valuation by energy output of tasks.
-Encrypted by chunking and distribution.
-Spirit of currency maintained within currency - Freedom.
+* Assured currency by industry action.
+* Self valuation by energy output of tasks.
+* Encrypted by chunking and distribution.
+* Spirit of currency maintained within currency - Freedom.
 
 ## Job Creation
 Connectivity Developer, as a job to model tasks performed by a company to detail actions of rendering a failure into profitable mechanics of a working machine modelling as real live actors to be recorded portraying economy as idols for a business to present their efforts and currency.
