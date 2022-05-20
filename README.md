@@ -31,3 +31,6 @@ Spirit of currency maintained within currency - Freedom.
 
 ## Job Creation
 Connectivity Developer, as a job to model tasks performed by a company to detail actions of rendering a failure into profitable mechanics of a working machine modelling as real live actors to be recorded portraying economy as idols for a business to present their efforts and currency.
+
+## Social Machine Economics
+Programming social engagements to deliver a wealth of higher conceptual machines to work on behalf of a company as emotionally enriching connections are chained like physical body parts of a programme. Creating social machine parts like cars to sell for social beings to engage as task machines themselves building upon its learning as failure is removed.
