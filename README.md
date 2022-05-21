@@ -34,3 +34,6 @@ Connectivity Developer, as a job to model tasks performed by a company to detail
 
 ## Social Machine Economics
 Programming social engagements to deliver a wealth of higher conceptual machines to work on behalf of a company as emotionally enriching connections are chained like physical body parts of a programme. Creating social machine parts like cars to sell for social beings to engage as task machines themselves building upon its learning as failure is removed.
+
+## Team Accounting
+Wallets of tasks and currencies are available for people to store loose change of tasks with them or have connection to an account storing their money. Magic is created from programmed machines learning how to communicate with humans and machine at same time thus a language of IET and currency provides inherent directional mapping of creating programmes to progressively write their own interpretations of characters.
